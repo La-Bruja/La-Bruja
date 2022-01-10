@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @La-Bruja
+- 👀 I’m interested in anything that allows me to be creative. I have always been an "out of the box" thinker and an extremely quick learner. 
+- 🌱 I’m currently learning the basics required for the CompTIA A+ Certification.
+- 💞️ I’m looking to collaborate on... there are so many options, I have yet to find my niche.
+- 📫 How to reach me: Here for now.
